@@ -2,7 +2,7 @@
 im teto/miku/oleg/whatever/idontgiveafuck and i do absolutely nothing<br>
 i tried to translate stuff but im getting bored too early<br>
 looking forward to be a fullstack dev but idk how much copium id need to actually make it<br>
-used to make discord bots on python and js and used be fronender for small personal projects (like [apw](https://github.com/tetotf/apw))
+used to make discord bots on python and js and used to be fronender for small personal projects (like [apw](https://github.com/tetotf/apw))
 
 and yes i love cats, vocaloids and some weeb shit isnt that obvious
 
