@@ -1,4 +1,4 @@
-# hi / [solo.to/tetotf](https://solo.to/tetotf) - all links here
+# hi / [solo.to/tetotf](https://solo.to/tetoerm) - all links here
 im teto/miku/oleg/whatever and i do absolutely nothing<br>
 i tried to translate stuff but im getting bored too early<br>
 looking forward to be a fullstack dev but idk how much copium id need to actually make it<br>
